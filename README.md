@@ -1,2 +1,4 @@
 #Deneme
-Deniyorum işte bir şeyler
+Denemeeeeeeeeeeeeeee
+deneme
+dmedke
